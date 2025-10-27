@@ -8,6 +8,6 @@
 <p align="center"><strong>۶ৎ    Adult ; Masc Leans </strong></p>
 <p align="center"><strong>𑣲   Adult - In relationship </strong></p>
 <p align="center">
-  <img src="https://i.postimg.cc/y6MhzJ75/Whats-App-Image-2025-10-28-at-01-09-13-61f508f3.jpg" alt="Description" width="500">
+  <img src="https://i.postimg.cc/jSXyNZPB/0f1c61bef572982143fec5dda9686e1e-removebg-preview-1.png" alt="Description" width="500">
 </p>
 
