@@ -22,16 +22,15 @@ If you’re out here spreading negativity, picking fights, or trying to control 
 
 
 
-
-
-
-
-
-INT if you love stories, late-night chats, and that quiet kind of connection that doesn’t need to be loud to be real.
+<p align="center"><strong>  INT if you love stories, late-night chats, and that quiet kind of connection that doesn’t need to be loud to be real.
 If you like warmth, soft energy, and conversations that go from joking to deep in seconds — yeah, we’ll get along.
 
 I’m drawn to people who stay genuine — who care without needing to prove it.
 If you’ve got a good heart and a sharp mind, I’m already interested.
 
 Stick around if you like open skies, dry humor, dumb jokes, and people who mean what they say.
-I don’t need perfect — just honest.
+I don’t need perfect — just honest.  </strong></p>
+
+
+
+
