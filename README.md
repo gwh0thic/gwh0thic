@@ -31,6 +31,8 @@ If you’ve got a good heart and a sharp mind, I’m already interested.
 Stick around if you like open skies, dry humor, dumb jokes, and people who mean what they say.
 I don’t need perfect — just honest.  </strong></p>
 
-
+<p align="center">
+  <img src="https://i.postimg.cc/FHFPkfwH/s-l1600-removebg-preview.png" alt="Description" width="500">
+</p>
 
 
