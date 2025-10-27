@@ -20,7 +20,7 @@
 I don’t care what fandom you’re from or how many followers you’ve got — just be kind, be real, and don’t act like you own the sky.
 If you’re out here spreading negativity, picking fights, or trying to control how others live? Stay grounded. You’re not cleared for takeoff. </strong></p>
 
-﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒
+﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒﹒
 
 <p align="center"><strong>  INT if you love stories, late-night chats, and that quiet kind of connection that doesn’t need to be loud to be real.
 If you like warmth, soft energy, and conversations that go from joking to deep in seconds — yeah, we’ll get along.
