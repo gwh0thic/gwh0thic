@@ -1,4 +1,4 @@
-# Hello
+# Yo, what’s up — Hawks here, number two hero. The wind carried your name to me. You call, I fly. What’s the occasion?
 <p align="center">
   <img src="https://i.postimg.cc/2ybfdbPV/image-removebg-preview.png" alt="Description" width="500">
 </p>
